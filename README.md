@@ -2,7 +2,7 @@
 I'm currently working on supply chain products development.
 👯 I’m looking to collaborate on builing up products to cater to different supply chain function.
 
-Fun fact : I am 
+Fun fact : I am also a poker player who as two adorable kittens.
 
 <!--
 **shikha191092/shikha191092** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
